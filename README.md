@@ -1,6 +1,6 @@
 # 蓝帆云机场官网地址
 
-最新地址：[lanfan.cloud](https://p.lanfan.me/auth/register?code=0WL6)
+最新地址：[lanfan.cloud](https://lanfanz.cc/auth/register?code=0WL6)
 
 ## 蓝帆云介绍
 
